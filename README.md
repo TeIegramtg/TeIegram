@@ -78,22 +78,21 @@
 ---
 ## 🚀 精选vpn机场平民价速度快稳定
 
-**飞兔vpn**：[点击进入推荐](https://feitu.im/index.html?register=SCMmqCUF)  
+**飞兔vpn**： [点击进入](https://feitu.im/index.html?register=SCMmqCUF) 【推荐】 
 **好猫机场**：[点击进入](https://goodcat.cc/)  
-
-**飞鸟vpn**：[点击进入](https://safevpn365.com/)  
-**shangins**：[点击进入](https://pay.shangins.com/)  
-**无云vpn**：[点击进入推荐](https://wuyunbooster.com/)  
-**通联vpn**：[点击进入](https://www.tun.ne)  
-**星联vpn**：[点击进入](https://singlinkhk.com/)  
-**旅行者vpn**：[点击进入](https://getrapps.org/)  
+**飞鸟vpn**： [点击进入](https://safevpn365.com/)  
+**shangins**：   [点击进入](https://pay.shangins.com/)  
+**无云vpn**：    [点击进入](https://wuyunbooster.com/)【推荐】  
+**通联vpn**：    [点击进入](https://www.tun.ne)  
+**星联vpn**：     [点击进入](https://singlinkhk.com/)  
+**旅行者vpn**：   [点击进入](https://getrapps.org/)  
 **skysinternet**：[点击进入](https://skysinternet.com/)  
 
 ---
 ## 👨‍✈️ 查档
 **开户/查档/开房记录**：[点击进入](https://t.me/kshgsvsiwn/)  
 **查档社工库查档反诈**：[点击进入](https://t.me/txdbdh)  
-**一手查档**：[点击进入推荐](https://t.me/juzhangcha888888)  
+**一手查档**：[点击进入](https://t.me/juzhangcha888888)【推荐】   
 ---
 
 
