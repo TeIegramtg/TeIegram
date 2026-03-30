@@ -78,7 +78,7 @@
 ---
 ## 🚀 精选vpn机场平民价速度快稳定
 
-**飞兔vpn**： [点击进入](https://feitu.im/index.html?register=SCMmqCUF) 【推荐】 
+**飞兔vpn**： [点击进入](https://feitu.im/index.html?register=SCMmqCUF) 【推荐】   
 **好猫机场**：[点击进入](https://goodcat.cc/)  
 **飞鸟vpn**： [点击进入](https://safevpn365.com/)  
 **shangins**：   [点击进入](https://pay.shangins.com/)  
